@@ -1,0 +1,1 @@
+# NTNU_bilder_oktober_2018
